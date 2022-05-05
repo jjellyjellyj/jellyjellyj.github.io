@@ -1,7 +1,8 @@
 ## My Top Artists This Month on Spotify
 Owned by Jhelei Ann Tordilla
 
-![alt text](![Untitled design](https://user-images.githubusercontent.com/102720773/167043613-7f85b98e-f51e-4b9b-a784-90163d904736.jpg)
+(![Untitled design](https://user-images.githubusercontent.com/102720773/167043613-7f85b98e-f51e-4b9b-a784-90163d904736.jpg)
+![Untitled design](https://user-images.githubusercontent.com/102720773/167043736-a2a54b89-8982-41ff-8a0b-5f130c1ee675.png)
 
 I enjoy listening to music a lot. One of my interests is music. When I'm happy, sad, angry, or normal, I listen to music. I listen to music when I'm in my house, in the car, at the grocery store, and elsewhere. I'll simply plug in my earphones and listen to music wherever I go. In short, I am constantly listening to music. I'll most likely listen to music on YouTube and Spotify. However, on this website, you will discover My Top Artists for the Month of April on Spotify.
 
