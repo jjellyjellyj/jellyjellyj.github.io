@@ -1,7 +1,9 @@
-## Welcome to GitHub Pages
+## My Top Artists This Month on Spotify
 Owned by Jhelei Ann Tordilla
 
-You can use the [editor on GitHub](https://github.com/jjellyjellyj/jellyjellyj.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+![alt text](![Untitled design](https://user-images.githubusercontent.com/102720773/167043613-7f85b98e-f51e-4b9b-a784-90163d904736.jpg)
+
+I enjoy listening to music a lot. One of my interests is music. When I'm happy, sad, angry, or normal, I listen to music. I listen to music when I'm in my house, in the car, at the grocery store, and elsewhere. I'll simply plug in my earphones and listen to music wherever I go. In short, I am constantly listening to music. I'll most likely listen to music on YouTube and Spotify. However, on this website, you will discover My Top Artists for the Month of April on Spotify.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
