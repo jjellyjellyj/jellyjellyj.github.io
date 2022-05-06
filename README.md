@@ -12,7 +12,7 @@ I enjoy listening to music a lot. One of my interests is music. When I'm happy, 
 
 ### K-pop, K-pop Boy Group
 
-### Song Recomemndation: 
+### Song Recommendation: 
 ![279362608_253842973577006_1413712472515079063_n](https://user-images.githubusercontent.com/102720773/167047305-938197a9-31b4-40d3-a895-317887d9aea2.jpg)
 
 [Open in Spotify](https://open.spotify.com/track/2Xc08tEA2sQsunrkLeJJ2D?si=941648f3a43444bb)
